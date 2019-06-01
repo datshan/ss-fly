@@ -40,3 +40,5 @@ flyzy小站交流群：http://t.me/flyzyxiaozhan
 
 ### VPS信息汇总
 [VPS GO](https://www.vpsgo.com)
+
+https://www.textarea.com/shadowsocks/shoubashou-jiao-ni-dajian-shadowsocks-kexue-shangwang-dajian-ss-fanqiang-935/?reply=718
